@@ -27,3 +27,4 @@
 
 ## follow me on instagram - @_amulyasri 
 ## follow me on twitter - AmulyaS38976761
+## *REPORT BUG HERE* - amulaysri@protonmail.ch
